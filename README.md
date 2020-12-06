@@ -1,2 +1,5 @@
 # hi-my-name-is-neomaster
-반갑다
+hihihihihihihihihi
+
+con.#1337
+https://discord.bio/p/neomaster831
